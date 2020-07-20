@@ -1,2 +1,2 @@
-# pros-only-
-Uber you use your car to make here you use your talent to make money or creat gigs. It’s app for artist that want to show talents off 
+Professionals is app that makes money . Anyway it can being a prob means you earn your living doing what you do ? This app will evolve as time passes to make your own account stand out in its own unique way like if you like the drag races and ballet and make money teaching ballet and racing. My app will be your manager and put you up on all social website building ads that can help increas you business
+For any profession. My friend Raps really good he is better than Eminem but how will I manage to prove that . My manager app will help me find my rapping friend studio to use paid or on clout even and connect there demo with big time artist and producers and other rappers to rub elbows with
